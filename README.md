@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @XZombiehunter012
+- 👀 I’m interested in modding
+- 🌱 I’m currently learning german 
+- 💞️ I’m looking to collaborate on Borderlands 2 and ETC
+- 📫 How to reach me is by emailing me @ stovall.ar.logan@gmial.com
