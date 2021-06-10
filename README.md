@@ -2,4 +2,4 @@
 - 👀 I’m interested in modding
 - 🌱 I’m currently learning german 
 - 💞️ I’m looking to collaborate on Borderlands 2 and ETC
-- 
+-Contact me at VANGAURDOFFICAL@gmail.com
